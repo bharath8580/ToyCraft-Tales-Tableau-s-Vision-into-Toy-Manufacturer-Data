@@ -1,1 +1,0 @@
-Assigments of the projects
